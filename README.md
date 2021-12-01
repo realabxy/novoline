@@ -12,3 +12,7 @@ TEAM KHONSARI - Creating the mappings used for this project
 
 ## NOTE
 This branch is NOT compilable! Visit the eclipse-ready branch to compile the client yourself.
+
+# LOLOLOLOLOLOLOL
+ORIGINAL GOT TAKEN DOWN BY CRINGE FUNI NOVOLINE DEVS SO THIS IS THE ONLY REMAINING FORK!!!!!!! XDDDDDDDD  
+THE POOR CHILDREN WILL BE SO MAD WHEN THEY FIND OUT I MADE LE FORK OF LE LATEST VERSION :trollface: :trollface: :trollface:
